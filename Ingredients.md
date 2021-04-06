@@ -1,13 +1,13 @@
-dough (enough to make at least a small circle)
+Dough (enough to make at least a small circle)
 
 Yeast(Edible fungus)
 
-cheese (as much as you want)
+Cheese (as much as you want)
 
-pepperoni (or any other toppings you want)👍
+Pepperoni (or any other toppings you want)👍
 
-pizza sauce
+Pizza sauce
 
-pizza stone (for oven)
+Pizza stone (for oven)
 
 
